@@ -39,6 +39,14 @@ Millie ─ Adult ─ Lesbian
   <p align="center">
   </p>
 <div align="center">
+ </p>
+  <img width="500" src="https://media.discordapp.net/attachments/1345863284242518166/1357106932577468527/Untitled202_20250402023042.png?ex=67eeffd2&is=67edae52&hm=cdf035c224523d7a552f3c0fa24ad9f622135018eb87b7b64f977a2306950433&=&format=webp&quality=lossless&width=799&height=800"
+ </p>
+ <img width="500" src="https://media.discordapp.net/attachments/1345863284242518166/1357106933336899786/Untitled202_20250402024901.png?ex=67eeffd2&is=67edae52&hm=911bdd64d877846f9c1c812097eaa7b818571a61e5171ca3637ff36243d6b556&=&format=webp&quality=lossless&width=799&height=800"
+   </p>
+    <p align="center"> 
+I do commissions shown up here! whisper me to contact me!
+  </p>
 
 <p align="center"> <img src="https://files.catbox.moe/ro6dzn.png"/> </p>
 
